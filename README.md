@@ -1,0 +1,1 @@
+# Manifiesto-Filos-fico-y-Metodolog-a-para-la-Vida-
