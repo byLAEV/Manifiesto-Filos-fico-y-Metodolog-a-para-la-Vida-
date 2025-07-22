@@ -1,4 +1,4 @@
-# Manifiesto-Filos-fico-y-Metodolog-a-para-la-Vida-
+# Manifiesto-Filosofico-y-Metodologia-para-la-Vida-
 
 # 🧿 MANIFIESTO FILOSÓFICO Y DE METODOLOGÍA PARA LA VIDA  
 ### Por LAEV  
